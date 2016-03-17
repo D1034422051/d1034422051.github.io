@@ -1,3 +1,0 @@
-Name:Chanyujie
-
-Tumblr:kiddingnowtime
